@@ -1,0 +1,1 @@
+To view the Uploaded Jira Files Click here👉[Jira Files](https://github.com/IBM-EPBL/IBM-Project-20892-1659766063/blob/main/Design%20%26%20Planning/Project%20Planning%20phase/Jira%20project%20files/Jira%20Files.pdf)
